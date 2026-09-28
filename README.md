@@ -1,0 +1,1 @@
+# Spyware-And-Adware-Remover-Full-Version-Unlocked
